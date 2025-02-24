@@ -4,6 +4,8 @@
 
 
 My name is Taylor Mathieu, and I am currently a student enrolled at SAIT taking Interactive Design and specializing in User Experience. 
+Link to my portfolio: https://www.canva.com/design/DAGf81fwaT0/tuU5g7J0BfEbbzqVooayog/view?utm_content=DAGf81fwaT0&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=ha2d0d47674
+
 
 - 🔭 I’m currently working on expanding my knowledge in order to learn and utilize the best practices for UX, so that I may use them to make technology as efficient and accessible as possible for every demographic. 
 - 🌱 I’m currently learning plenty of the foundations for UX design, such as digital media, visual design, web communications as well as developing my critical thining skills. 
@@ -12,5 +14,6 @@ My name is Taylor Mathieu, and I am currently a student enrolled at SAIT taking 
 - 💬 Ask me about my career goals, my interests, and where I plan on taking my design skills.
 - 📫 How to reach me: taylor.mathieu@edu.sait.ca
 - 😄 Pronouns: My pronouns include she/her.
-- ⚡ Fun fact: I am ambidexterous. 
+- ⚡ Fun fact: I am ambidexterous.
+- 
 
