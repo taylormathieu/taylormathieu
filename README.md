@@ -4,7 +4,8 @@
 
 
 My name is Taylor Mathieu, and I am currently a student enrolled at SAIT taking Interactive Design and specializing in User Experience. 
-Link to my portfolio: https://www.canva.com/design/DAGf81fwaT0/tuU5g7J0BfEbbzqVooayog/view?utm_content=DAGf81fwaT0&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=ha2d0d47674
+Link to my portfolio: https://groundhog-terrier-ethl.squarespace.com/config/
+
 
 
 - 🔭 I’m currently working on expanding my knowledge in order to learn and utilize the best practices for UX, so that I may use them to make technology as efficient and accessible as possible for every demographic. 
