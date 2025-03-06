@@ -13,8 +13,8 @@ Link to my portfolio: https://groundhog-terrier-ethl.squarespace.com/config/
 - 👯 I’m looking to collaborate on any group projects so that I may get as much practice and acquire as much knowledge as possible. 
 - 🤔 I am looking to learn as much as I possibly can and learn how to use my knowldge for my most efficient performance. 
 - 💬 Ask me about my career goals, my interests, and where I plan on taking my design skills.
-- 📫 How to reach me: taylor.mathieu@edu.sait.ca
+- 📫 How to reach me: taylor.mathieu@edu.sait.ca or my personal email: taylormathieu44@gmail.com 
 - 😄 Pronouns: My pronouns include she/her.
 - ⚡ Fun fact: I am ambidexterous.
-- 
+  
 
