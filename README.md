@@ -4,7 +4,7 @@
 
 
 My name is Taylor Mathieu, and I am currently a student enrolled at SAIT taking Interactive Design and specializing in User Experience. 
-Link to my portfolio: https://groundhog-terrier-ethl.squarespace.com/config/
+
 
 
 
